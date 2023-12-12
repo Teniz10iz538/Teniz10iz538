@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Teniz10iz538
+- 👋 Hi, I’m @1oiz
 - 👀 I’m interested in ..programming
 - 🌱 I’m currently learning ...programming
 - 💞️ I’m looking to collaborate on ...
